@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+Welcome to my Blog!
 
-Maybe say a some things about yourself.
+I made this blog to share my thoughts on emerging topics 
 
-Or maybe what you plan to blog about.
+pertaining to healthcare, sustainability, and climate policy.
+
+I feel that Linkedin is too formal, so I wanted to have a little more fun instead!
